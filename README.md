@@ -1,5 +1,5 @@
-### Hi there 👋
-
+### Hi, you've reached Yael's Github! 👋
+### I'm not in right now, please leave a [messeage](https://www.linkedin.com/in/yael-solomon/).
 <!--
 **YaelSolomon/YaelSolomon** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
